@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sambeckingham-awaze
+- 👀 I’m interested in chocolate
+- 🌱 I’m currently learning impulse control
+- 💞️ I’m looking to collaborate on chocolate
